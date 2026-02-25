@@ -37,6 +37,10 @@ Il a fait preuve de professionnalisme et a acquis les compétences évaluées.
 
 Notion
 
+Word
+
+PowerPoint
+
 Documentation Officiel
 
 Cours Openclassrooms
